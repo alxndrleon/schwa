@@ -1,3 +1,4 @@
 Guatemala
 Malawi
 Denmark
+Guam
